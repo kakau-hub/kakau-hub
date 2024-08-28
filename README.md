@@ -13,5 +13,18 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
+-->Kauany Stachak
+Brasileira
+Data de nascimento:12/10/2009
+E-mail: kauany.stachak@escola.pr.gov.br
+Contato: ( 999277009)
+Endereço: São Sebastião da Bela Vista
+objetivo
+Sou estudante, pretendo atuar na área administrativa
+formação acadÊmica
+Pretendo fazer Administração e Marketing
+cursos complementares
+Cursos de informática
+experiência
+Nenhuma
 https://www.canva.com/design/DAGOrMbG3FY/QCBX4YBsg0TEqNbymJrszQ/edit?utm_content=DAGOrMbG3FY&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
