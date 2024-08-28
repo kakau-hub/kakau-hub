@@ -14,3 +14,17 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Kauany Stachak
+Brasileira
+Data de nascimento:12/10/2009
+E-mail: kauany.stachak@escola.pr.gov.br
+Contato: ( 999277009)
+Endereço: São Sebastião da Bela Vista
+objetivo
+Sou estudante, pretendo atuar na área administrativa
+formação acadÊmica
+Pretendo fazer Administração e Marketing
+cursos complementares
+Cursos de informática
+experiência
+Nenhuma
